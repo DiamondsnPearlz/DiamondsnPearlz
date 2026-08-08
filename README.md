@@ -4,7 +4,7 @@ Hi, my name is Pearl! You can read this or not, I don’t mind if you don’t. N
 $\Large{\textsf{Info}}$
 -
 - Do not at all be afraid to int!!!
-- I’m at the upper beach/MLP area a lot, but I also tend to visit the bakery (or js run around the map). It depends fr but that’s where I hang out the most.
+- I’m at the upper beach/MLP area a lot, but I also tend to visit the bakery or js run around the map. It depends fr but that’s where I hang out the most.
 - I’m pretty sensitive and I tend to get irritated or otherwise annoyed or upset easily, but as long as you aren’t being an asshat towards me or other players for no reason you should be good.
 - I’m a serial skin complimenter lol.
 - 90% of the skins I make and wear are cosplays from whatever pieces of media I enjoy, though I hope to make more OCs in the future. I also love when people are cosplaying the exact same characters as I am, like yesss we’re twinning!
@@ -50,6 +50,7 @@ $\Large{\textsf{Fandoms/Fav Media (INT!)}}$
 - Sailor Moon (Haven’t finished)
 - Lolirock (Haven’t finished)
 - Geronimo/Thea Stilton (Haven’t finished)
+- TAK / DORIDORI (This is a musician rather than a piece of media, but please int if you also listen to him or know his songs!!!)
 - And more that I haven’t mentioned!
 
 
