@@ -33,7 +33,7 @@ $\Large{\textsf{DNI}}$
 - Pro-harassment
 - Darkship
 - Pro-generative AI (not sure that this would be a big deal in a pixel horse game, but better safe than sorry ig)
-- That’s mainly it. Note that this list is not exhaustive and I will still hide/block people as I see fit.
+-  That’s mainly it. Note that this list is not exhaustive and I will still hide/block people as I see fit.
 
 
 $\Large{\textsf{Fandoms/Fav Media (INT!)}}$
