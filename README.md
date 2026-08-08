@@ -50,7 +50,7 @@ $\Large{\textsf{Fandoms/Fav Media (INT!)}}$
 - Sailor Moon (Haven’t finished)
 - Lolirock (Haven’t finished)
 - Geronimo/Thea Stilton (Haven’t finished)
-- + More that I haven’t mentioned
+- And more that I haven’t mentioned!
 
 
 Thanks 4 reading <3 <3
