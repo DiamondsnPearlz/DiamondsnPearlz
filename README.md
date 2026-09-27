@@ -3,26 +3,25 @@ Hi, my name is Pearl! You can read this or not, I don’t mind if you don’t. N
 
 $\Large{\textsf{Info}}$
 -
+- I’m black, female and a minor.
 - Do not at all be afraid to int!!!
-- I’m at the upper beach/MLP area a lot, but I also tend to visit the bakery or js run around the map. It depends fr but that’s where I hang out the most.
-- I’m pretty sensitive and I tend to get irritated or otherwise annoyed or upset easily, but as long as you aren’t being an asshat towards me or other players for no reason you should be good.
-- I’m a serial skin complimenter lol.
-- 90% of the skins I make and wear are cosplays from whatever pieces of media I enjoy, though I hope to make more OCs in the future. I also love when people are cosplaying the exact same characters as I am, like yesss we’re twinning!
-- I’m a minor. Do not be weird towards me.
-- I can sometimes be AFK, not paying full attention to the game, or making skins. If I don’t promptly respond to something you said to me, dw it’s nothing against you 9 times out of 10.
-- I’m pretty dookie buns at roleplaying imo, but will sometimes do so if given the chance.
+- I hang out at the upper beach/MLP area and the bakery the most, but I can sometimes be in other places.
+- If I have “IWC” (interact with caution) in my name, it means I’m in a bad mood.
+- I’m pretty sensitive and I tend to get irritated/annoyed or upset easily, but mainly js don’t be an asshat for no reason and you should be good.
+- I tend to go AFK, not pay full attention to the game or sit around and make skins a lot. It’s often nothing against you if I seemingly ignore you dw.
+- I love when people are cosplaying the exact same character(s) as I am, like yesss we’re twinning!
 
 
 $\Large{\textsf{Boundaries}}$
 -
-- My biggest thing is DO NOT copy my skins or my pony style. Me existing with my skin on is not a free pass for you to rip off my creativity. If you genuinely cannot make your own skins for whatever reason, follow one of the hundreds of skin tutorials out there.
-- Ships DNI please, even if I enjoy certain ships/said ship is canon. Otherwise, platonic interaction is fine.
+- My biggest thing is DO NOT copy my skins or my pony style. Me existing with my skin on is not a free pass for you to rip off my creativity. 
+- Ships DNI. Otherwise, platonic interaction is fine.
 - Booping is fine and lwky encouraged!!! Kisses are fine too as long as they’re intended to be platonic.
 - Offensive/ragebait skins = hidden/blocked. (Cough cough, Meowbahh cosplays and MAP flags)
-- Being mean for no reason = hidden/blocked.
-- I don’t care that much about being covered. I personally don’t find it to be that deep (no shade if you do).
+- Being unnecessarily rude = hidden/blocked.
 - I don’t accept random friend reqs most of the time, especially if we did not at all interact prior. If I send you a friend req and you aren’t comfortable with that, I apologize in advance.
-- Give item reqs are fine, but do not spam me with them.
+- Don’t spam me with give item reqs. Other than that, they’re ok.
+- Don’t invite me to a party for no reason.
 
 
 $\Large{\textsf{DNI}}$
